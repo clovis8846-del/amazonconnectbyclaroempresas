@@ -1,1 +1,1 @@
-imagem Acrilys
+imagem skintec
